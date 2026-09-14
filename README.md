@@ -1,4 +1,4 @@
-# Hi 👋, I'm Mau
+# Hi, I'm Mauricio
 
 **Systems Engineering Student · Colombia 🇨🇴**
 
